@@ -1,4 +1,4 @@
-## Olá! Chamo-me Allan Almeida e sou água💧!
+## Olá! Chamo-me Allan Almeida.
  
 ## :chart_with_upwards_trend: &nbsp; Github Stats
 
